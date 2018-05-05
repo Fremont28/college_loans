@@ -5,4 +5,4 @@ Taking out loans is about as American as apple pie. Americans are prone to take 
 
 However, as factory jobs disappear and technology continues to expand, getting an education appears to be more valuable than ever even the mounting tuition costs in American colleges. If so, can we quantify the value of a college education? In other words, how much more do college graduates make than non-college graduates? 
 
-Read Here: 
+Read Here: https://beyondtheaverage.wordpress.com/2018/05/05/mapping-college-loan-applicants/
